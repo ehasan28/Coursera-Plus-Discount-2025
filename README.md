@@ -30,6 +30,19 @@ With the Coursera Plus subscription, you not only tap into the Coursera discount
 ![Photo of alt](https://maxzob.com/wp-content/uploads/2023/05/coursera-plus-free-trial.png)
 
 
+### 📊 Features Breakdown of Coursera Plans
+
+| **Features**                                 | **Single learning program** | **Coursera Plus monthly** | **Coursera Plus annual** |
+|---------------------------------------------|------------------------------|----------------------------|---------------------------|
+| **Price**                                    | $49–$79                      | $59                        | $399                      |
+| **Course access**                            | Available within the program | 7000+                      | 7000+                     |
+| **Certification access**                     | Limited                      | Unlimited                  | Unlimited                 |
+| **Projects and labs**                        | Not available                | 1000+                      | 1000+                     |
+| **Certification programs (Google, Facebook)**| Not available                | 15+                        | 15+                       |
+| **Free trial**                               | Not available                | 7 days                     | Not available             |
+| **Money-back guarantee**                     | Not available                | Not available              | 14 days                   |
+
+
 
 
 
