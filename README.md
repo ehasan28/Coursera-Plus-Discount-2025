@@ -13,7 +13,20 @@ Coursera Plus Discount (August Offer | Flat 50% OFF)
 
 Get a Flat 50% discount and save up to $309 On a Coursera Plus Annual subscription❤️
 
+[Get Coursera Now] (https://maxzob.com/recommends/coursera/)
 
+##Available Coursera discounts on Coursera Plus plans (For August 2025)
+Currently, Coursera offers three subscription plans – The single learning program, Coursera Plus monthly, and Coursera Plus annual plans. 
+
+Only a few courses are offered in the single learning program, and you can only access those. But with the Coursera Plus discount, you can save money and get more certifications at a lower price. 
+
+Both the Coursera discount plans offer 7000+ courses and unlimited certifications, but their pricing sets them apart. 
+
+You can save a whopping $309 on the Coursera Plus annual plan. So if you want to grab your Coursera Plus discount, opt for the annual plan!
+
+##Is there a free trial on the Coursera Plus Discount?
+With the Coursera Plus subscription, you not only tap into the Coursera discount but also get a free trial and a money-back guarantee. 
+![Photo of alt] (https://maxzob.com/wp-content/uploads/2023/05/coursera-plus-free-trial.png)
 
 
 
