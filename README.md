@@ -27,7 +27,7 @@ You can save a whopping $309 on the Coursera Plus annual plan. So if you want to
 ## Is there a free trial on the Coursera Plus Discount?
 With the Coursera Plus subscription, you not only tap into the Coursera discount but also get a free trial and a money-back guarantee. 
 
-! [Photo of alt](https://maxzob.com/wp-content/uploads/2023/05/coursera-plus-free-trial.png)
+![Photo of alt](https://maxzob.com/wp-content/uploads/2023/05/coursera-plus-free-trial.png)
 
 
 
