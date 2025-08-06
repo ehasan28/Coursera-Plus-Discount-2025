@@ -23,7 +23,7 @@ Coursera frequently runs promotions on its Plus subscription plan. These deals c
 
 Yes! New users can access a **7-day free trial** on Coursera Plus.
 
-![Coursera Free Trial Screenshot](image_link_here)
+![Coursera Free Trial Screenshot] https://github.com/ehasan28/Coursera-Plus-Discount-2025/blob/17c4309cbaec852dcaf48354f0796fc4069c86c6/images/Checkout-Coursera-plus.png
 
 ---
 
